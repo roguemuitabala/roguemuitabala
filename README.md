@@ -1,7 +1,5 @@
-- 👋 Hi, I’m @roguemuitabala
-- 👀 I’m interested in ... em aprender 
-- 🌱 I’m currently learning ... desenvolvimento de sistema 
-- 💞️ I’m looking to collaborate on ... nem sei 
-- 📫 How to reach me ... todos sabem qm eu sou 
-- 😄 Pronouns: ... lindo bonito xereso zeloso jogador
-- ⚡ Fun fact: ... nao tenho essa de piadinha 
+# VIZÃO 3️⃣3️⃣☯️🤟🤟👺👺👺
+
+me chamo Rafael Gomes, formado em advocacia na estacio, criado para abater,6 mundial de peteca, ja conheci o neymar, tenho 14 nfa, joguei chadres com abram ham limcom, vice presidente da angola, ceo da coca cola 
+
+
