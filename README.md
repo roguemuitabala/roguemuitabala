@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @roguemuitabala
+- 👀 I’m interested in ... em aprender 
+- 🌱 I’m currently learning ... desenvolvimento de sistema 
+- 💞️ I’m looking to collaborate on ... nem sei 
+- 📫 How to reach me ... todos sabem qm eu sou 
+- 😄 Pronouns: ... lindo bonito xereso zeloso jogador
+- ⚡ Fun fact: ... nao tenho essa de piadinha 
